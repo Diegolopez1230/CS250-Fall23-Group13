@@ -13,3 +13,4 @@ Finish this sentence… “I function best in groups when…” everyone underst
 Finish this sentence… “I really hope our group can…” get 100s on the assignments 
 
 Diego Lopez
+Antonio Toledo
